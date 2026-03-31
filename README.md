@@ -2,3 +2,4 @@
 READY TO USE PUBG DMA CHEAT 
 ever game update only need exe download Releases
 last game update 
+any problems join discord 

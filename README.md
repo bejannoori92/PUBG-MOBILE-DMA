@@ -1,8 +1,8 @@
-# MR-PUBG-DMA
-READY TO USE PUBG DMA CHEAT 
+PUBG-MOBILE-DMA
+READY TO USE PUBG MOBILE DMA CHEAT 
 ever game update only need exe download Releases
 last game update 
 any problems join discord 
 4 version pubg dma free ready 
-free
+
 and add pubg mobile dma 
